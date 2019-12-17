@@ -34,6 +34,8 @@ Midnight recieves a single pill daily, and must be tricked into taking it.  Her 
 
 She also gets a lil' bit of pumpkin with some Dasuquin mixed in.  There is a tiny jar of orange glob in the fridge - this is the pumpkin.  Dump about a tablespoon on a plate, open a capsule of Dasuquin, and mix it fully.  Rory will at this point be convinced that you have set up wet food for him and will be freaking out.  He can be distracted by a handful of thrown treats (located in the same cupboard as the food) while you deliver the plate to Midnight.
 
+**NOTE:** Midnight is sometimes disgusting and may have barfed somewhere (including on the bed) or gotten poop stuck to her and scooted it across something to get it off (including on the bed).  If this happens just... Just let me know, and I'll clean it up when I get back.  In the meantime, she made her bed (literally and figuratively) and can lay in it (literally and figuratively).
+
 ## Yog-soggoth
 
 The hallway closet is the domain of Yog-soggoth and he is fed not from the container, but your very soul.  Thankfully, he only requires a couple every millenium, and was fed as recently as the 1600s.  He can be left to his own devices, and as I have recently installed an automatic laser pointer machine (as it turns out, also good for distracting pesky ancient gods), he shouldn't need entertainment either.
