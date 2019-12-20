@@ -41,3 +41,29 @@ She also gets a lil' bit of pumpkin with some Dasuquin mixed in.  There is a tin
 The hallway closet is the domain of Yog-soggoth and he is fed not from the container, but your very soul.  Thankfully, he only requires a couple every millenium, and was fed as recently as the 1600s.  He can be left to his own devices, and as I have recently installed an automatic laser pointer machine (as it turns out, also good for distracting pesky ancient gods), he shouldn't need entertainment either.
 
 For all our safety, when you leave for a few days, please replace the battery in the automatic laser pointer machine.  If it runs out while you're away, there will be no gods powerful enough to rescue us from our eternal torment.
+
+## Emergencies
+
+The cats' vet is Mt. Pleasant - Davisville Animal Hospital, which is located at 745 Mount Pleasant Rd (416-481-7387). Their normal hours are Mon-Fri 7:30-7:00, Saturday 8:00-2:00.
+
+Holiday hours:
+
+December 24: 7:30am-1pm
+December 25: CLOSED
+December 26: CLOSED
+
+Always please try to get in touch with me if something comes up, but prioritize getting the cat in question into care first.  Feel free to take an Uber/Lyft/Cab and pass the receipt along to me later.  If you can't get in touch with me and the problem requires less than $2000 to address (or they want to order tests up to that amount), **go ahead**.  They should know the cats there and be okay with us paying it on return, but if not and you are comfortable, I'll gladly pay you back ASAP.
+
+Midnight is on an insurance plan, so that might even cover some of the costs.
+
+## Oh fuck, they're closed!
+
+If the Mt. Pleasant - Davisville Animal Hospital is closed, these are the next two locations that should be open:
+
+VEC South
+920 Yonge Street, Suite 117, Toronto, Ontario M4W 3C7
+416.920.2002
+
+Willowdale Animal Hospital
+256 Sheppard Ave. West, Toronto, ON M2N 1N3
+416.222.5409
