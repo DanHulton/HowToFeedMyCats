@@ -10,11 +10,11 @@ Instructions on how to feed my cats when I am away.
 
 ## Location of Cat Food
 
-The open can of cat food will be in the fridge.  The unopened cans are in the floor cupboard door immediately to the right of the fridge.  This is also where Rory's kibble is.  Midnight's kibble is immediately next to her dish.
+The open can of cat food will be in the fridge, in the door, in the butter compartment.  The unopened cans are in the floor cupboard door immediately to the right of the fridge.  This is also where Rory's kibble is.  Midnight's kibble is immediately next to her dish.  Midnight's kitty gogurt is in a mason jar on the island.
 
 ## Location of medications.
 
-The medications are on the counter, immediately to the left of the sink.
+The medications are on the counter, immediately to the right of the fridge, above the cupboard door containing the unopened cans of food.
 
 ## Rory
 
@@ -28,7 +28,7 @@ Rory gets a quarter-can of wet food each day, unadulturated.  The bowls for this
 
 ## Midnight
 
-Midnight fights with Rory (or Rory fights with Midnight, we don't know which) and thus is kept separate from him in the main bedroom.  Please take care when entering that she does not escape, nor Rory enter, lest A Fight ensue.
+Midnight fights with Rory (or Rory fights with Midnight, we don't know which) and thus is kept separate from him in the main bedroom.  Please take care when entering the bedroom that she does not escape, nor Rory enter, lest A Fight ensue.
 
 She may not be visible when you enter, as she can be skittish.  Or she may be desperate for affection.  Who can know in advance?  She is a cat, and her whims are subject to no human scrutiny.
 
@@ -36,17 +36,19 @@ Her food bowl is immediately in front of the door.  It will likely still be most
 
 Her water bowl should be visible on entering the room, at the far side of the room, beneath the window.  It should be emptied in the bathroom sink and refilled.
 
-Midnight gets a quarter-can of wet food each day, but it must be made up Special.
+Midnight gets a stick of kitty gogurt each day, but it must be made up Special.
 
-First, add the wet food, then open the Dasuquin bottle to the left of the sink and grab a single capsule.  Twist it open, pour the enclosed powder into the wet food, and mash it up.
+First, take a quarter pill from the purple container and use a spoon, knife, fork, or other instrument of destruction, and crush it into a powder.
 
-Next, take a quarter pill from the purple container, and tuck it somewhere in the middle of the mashed-up food.  She won't find it, but she will eat it.
+Next, open the Dasuquin bottle and remove a single capsule.  Twist it open and pour the enclosed powder into the gogurk.
+
+Finally, squirt an entire gogurt on top of the assorted nefarious powders, and mix it up good.  Midnight will never know that she is being so well taken care of.
 
 **NOTE:** Midnight is sometimes disgusting and may have barfed somewhere (including on the bed) or gotten poop stuck to her and scooted it across something to get it off (including on the bed).  If this happens and you're uncomfortable dealing with it, just... Just let me know, and I'll clean it up when I get back.  In the meantime, she made her bed (literally and figuratively) and can lay in it (literally and figuratively).
 
 ## Yog-soggoth
 
-The hallway closet is the domain of Yog-soggoth and he is fed not from the container, but your very soul.  Thankfully, he only requires a couple every millenium, and was fed as recently as the 1600s.  He can be left to his own devices, and as I have recently installed an automatic laser pointer machine (as it turns out, also good for distracting pesky ancient gods), so he shouldn't need entertainment either.
+The hallway closet is the domain of Yog-soggoth and he is fed not from the container, but your very soul.  Thankfully, he only requires a couple sips every millenium, and was fed as recently as the 1600s.  He can be left to his own devices, and as I have recently installed an automatic laser pointer machine (as it turns out, also good for distracting pesky ancient gods), so he shouldn't need entertainment either.
 
 For all our safety, when you leave for a few days, please replace the battery in the automatic laser pointer machine.  If it runs out while you're away, there will be no gods powerful enough to rescue us from our eternal torment.
 
@@ -60,9 +62,9 @@ December 24: 7:30am-1pm
 December 25: CLOSED
 December 26: CLOSED
 
-The cat carriers are in the top of the coat closet, next to the office door.
+The cat carriers are in the top of the coat closet, next to the office door.  Mind Yog-soggoth while you're in there.
 
-Always please try to get in touch with me if something comes up, but prioritize getting the cat in question into care first.  Feel free to take an Uber/Lyft/Cab and pass the receipt along to me later.  If you can't get in touch with me and the problem requires less than $2000 to address (or they want to order tests up to that amount), **go ahead**.  They should know the cats there and be okay with us paying it on return, but if not and you are comfortable, I'll gladly pay you back ASAP.
+Always please try to get in touch with me if something comes up, but prioritize getting the cat in question into care if I can't be reached.  Feel free to take an Uber/Lyft/Cab and pass the receipt along to me later.  If you can't get in touch with me and the problem requires less than $2000 to address (or they want to order tests up to that amount), **go ahead**.  They should know the cats there and be okay with us paying it on return, but if not and you are comfortable, I'll gladly pay you back ASAP.
 
 Midnight is on an insurance plan, so that might even cover some of the costs.
 
