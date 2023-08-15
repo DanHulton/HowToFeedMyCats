@@ -10,7 +10,7 @@ Instructions on how to feed my cats when I am away.
 
 ## Location of Cat Food
 
-The open can of cat food will be in the fridge, in the door, in the butter compartment.  The unopened cans are in the floor cupboard door immediately to the right of the fridge.  This is also where Rory's kibble is.  Midnight's kibble is immediately next to her dish.  Midnight's kitty gogurt is in a mason jar on the island.
+The open cans of cat food will be in the fridge, in the door, in the butter compartment.  The unopened cans are in the floor cupboard door immediately to the right of the fridge.  This is also where Rory's kibble is.  Midnight's kibble is immediately next to her dish.
 
 ## Location of medications.
 
@@ -24,7 +24,7 @@ His water dishes are located next to the main bathroom.  Rory is a disgusting dr
 
 There is more than one of each bowl, so please fill all, especially if you are going to be absent for a few days.
 
-Rory gets a quarter-can of wet food each day, unadulturated.  The bowls for this food will be on the counter, next to the medicine.
+Rory gets an eight of the large can of wet food twice a day (once in the morning, once in the evening).  In the morning, you can just give him the wet food plain, but in the evening, please mix one packet of probiotic (small white & blue box containing like 60 packets, located with the medicine) in and mash it around.  He may not eat any of this food.  That is normal.  Use any of the small plates in the upper cupboard to the right of the stove for this wet food.
 
 ## Midnight
 
@@ -32,25 +32,21 @@ Midnight fights with Rory (or Rory fights with Midnight, we don't know which) an
 
 She may not be visible when you enter, as she can be skittish.  Or she may be desperate for affection.  Who can know in advance?  She is a cat, and her whims are subject to no human scrutiny.
 
-Her food bowl is immediately in front of the door.  It will likely still be mostly full when you arrive, but if you feel like attempting to gain her (incredibly fickle) affection, you can add more food to the bowl and then supplicate before her.
+Her food bowl is across the room, in front of the window.  It will likely still be mostly full when you arrive, but if you feel like attempting to gain her (incredibly fickle) affection, you can add more food to the bowl and then supplicate before her.
 
-Her water bowl should be visible on entering the room, at the far side of the room, beneath the window.  It should be emptied in the bathroom sink and refilled.
+Her water bowl should be visible on entering the room, directly in front of the door.  It should be emptied in the bathroom sink and refilled.
 
-Midnight gets a stick of kitty gogurt each day, but it must be made up Special.
+Midnight gets one third of the small can of cat food twice a day (once in the morning, once in the evening).  In the morning, you can just give her the wet food plain, but in the evening, please mix one packet of probiotic (see Rory's information for details), a third of a quarter-teaspoon (effectively, yes, a twelfth-teaspoon) of laxative (small container of white powder located with the medicine), and some Dasuquin every second day.
 
-First, take a quarter pill from the purple container and use a spoon, knife, fork, or other instrument of destruction, and crush it into a powder.
-
-Next, open the Dasuquin bottle and remove a single capsule.  Twist it open and pour the enclosed powder into the gogurk.
-
-Finally, squirt an entire gogurt on top of the assorted nefarious powders, and mix it up good.  Midnight will never know that she is being so well taken care of.
+The Dasuquin is actually easier to keep track of than you might expect - check the pink pill container with the medicine.  If there is a green capsule in there, she gets Dasuquin that day.  If not, she doesn't!  Open the capsule and add it to the other powders you have piled high upon her food, and mash it all together.  She thinks it tastes great and will consume it all, but maybe not all immediately, is all.  (She may just have gorged on kibble, or she may just be picky.)
 
 **NOTE:** Midnight is sometimes disgusting and may have barfed somewhere (including on the bed) or gotten poop stuck to her and scooted it across something to get it off (including on the bed).  If this happens and you're uncomfortable dealing with it, just... Just let me know, and I'll clean it up when I get back.  In the meantime, she made her bed (literally and figuratively) and can lay in it (literally and figuratively).
 
-## Yog-soggoth
+## The plants
 
-The hallway closet is the domain of Yog-soggoth and he is fed not from the container, but your very soul.  Thankfully, he only requires a couple sips every millenium, and was fed as recently as the 1600s.  He can be left to his own devices, and as I have recently installed an automatic laser pointer machine (as it turns out, also good for distracting pesky ancient gods), so he shouldn't need entertainment either.
+There's a whole bunch of plants both out on the balcony _and in the office!_  Please keep an eye on them, and if they start to look wilty, give them a thorough soaking.
 
-For all our safety, when you leave for a few days, please replace the battery in the automatic laser pointer machine.  If it runs out while you're away, there will be no gods powerful enough to rescue us from our eternal torment.
+If any peppers drop off, please either a) go ahead and eat it! or b) toss it in the crisper drawer in the fridge and I'll do something with it when I get back.
 
 ## Emergencies
 
@@ -62,7 +58,7 @@ December 24: 7:30am-1pm
 December 25: CLOSED
 December 26: CLOSED
 
-The cat carriers are in the top of the coat closet, next to the office door.  Mind Yog-soggoth while you're in there.
+The cat carriers are in the top of the coat closet, next to the office door.  Alternatively, there is a cat backpack in the bedroom, on the side of the bed nearest the bathroom.  It's much, much easier to transport a cat in there, but depending on the nature of the emergency, that may not be possible.
 
 Always please try to get in touch with me if something comes up, but prioritize getting the cat in question into care if I can't be reached.  Feel free to take an Uber/Lyft/Cab and pass the receipt along to me later.  If you can't get in touch with me and the problem requires less than $2000 to address (or they want to order tests up to that amount), **go ahead**.  They should know the cats there and be okay with us paying it on return, but if not and you are comfortable, I'll gladly pay you back ASAP.
 
