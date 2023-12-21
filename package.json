@@ -1,0 +1,22 @@
+{
+  "name": "howtofeedmycats",
+  "version": "1.0.0",
+  "description": "How To Feed My Cats",
+  "main": "README.md",
+  "scripts": {
+    "test": "echo \"Error: no test specified\" && exit 1"
+  },
+  "repository": {
+    "type": "git",
+    "url": "git+ssh://git@github.com/DanHulton/HowToFeedMyCats.git"
+  },
+  "author": "Dan Hulton",
+  "license": "ISC",
+  "bugs": {
+    "url": "https://github.com/DanHulton/HowToFeedMyCats/issues"
+  },
+  "homepage": "https://github.com/DanHulton/HowToFeedMyCats#readme",
+  "devDependencies": {
+    "prettier": "^3.1.1"
+  }
+}
