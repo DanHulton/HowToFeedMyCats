@@ -71,9 +71,7 @@ She also gets some Gabapentin to calm her down. Give this bottle a solid shake
 to mix it up, then use one of the syringes to draw out .5mL of liquid and add it
 to her food.
 
-<img
-src="https://github.com/DanHulton/HowToFeedMyCats/raw/master/images/lax.jpg"
-width=300" />
+<img src="https://github.com/DanHulton/HowToFeedMyCats/raw/master/images/lax.jpg" width="300" />
 
 She also gets some laxative to keep her regular and keep her from being brought
 to the vet to fix that particular problem. Scoop out about three-quarters of the
