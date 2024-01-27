@@ -58,7 +58,7 @@ door. They should be emptied in the bathroom sink and refilled.
 Midnight gets one half of the small can of cat food per day, with her
 medications mixed in:
 
-<img src="https://github.com/DanHulton/HowToFeedMyCats/raw/master/images/pills.jpg" width="300" />
+<img src="https://github.com/DanHulton/HowToFeedMyCats/raw/master/images/pills.jpg" width="500" />
 
 Midnight gets some Dasuquin to keep her joints supple. Check the little section
 with today's day of week on it, and if it has a pill, please twist it open and
@@ -73,7 +73,7 @@ to her food.
 
 <img
 src="https://github.com/DanHulton/HowToFeedMyCats/raw/master/images/lax.jpg"
-width=300" /
+width=300" />
 
 She also gets some laxative to keep her regular and keep her from being brought
 to the vet to fix that particular problem. Scoop out about three-quarters of the
