@@ -58,20 +58,22 @@ door. They should be emptied in the bathroom sink and refilled.
 Midnight gets one half of the small can of cat food per day, with her
 medications mixed in:
 
-![Dasuquin pills](images/pills.jpg)
+<img src="https://github.com/DanHulton/HowToFeedMyCats/raw/master/images/pills.jpg" width="300" />
 
 Midnight gets some Dasuquin to keep her joints supple. Check the little section
 with today's day of week on it, and if it has a pill, please twist it open and
 add the powder inside to her food. If there's no pill in it, there's nothing to
 be done here!
 
-![Gabapentin](images/gabapentin.jpg)
+<img src="https://github.com/DanHulton/HowToFeedMyCats/raw/master/images/gabapentin.jpg" width="300" />
 
 She also gets some Gabapentin to calm her down. Give this bottle a solid shake
 to mix it up, then use one of the syringes to draw out .5mL of liquid and add it
 to her food.
 
-![Laxative](images/lax.jpg)
+<img
+src="https://github.com/DanHulton/HowToFeedMyCats/raw/master/images/lax.jpg"
+width=300" /
 
 She also gets some laxative to keep her regular and keep her from being brought
 to the vet to fix that particular problem. Scoop out about three-quarters of the
