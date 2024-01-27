@@ -83,14 +83,6 @@ She also gets some laxative to keep her regular and keep her from being brought
 to the vet to fix that particular problem. Scoop out about three-quarters of the
 tiny scoop and pop it in there.
 
-**NO IMAGE FOUND**
-
-Also, there's like one dose or so of her antibiotics left. These are in the
-fridge with the food. The lid is an eyedropper, so you can just shake, untwist,
-and use the eyedropper to get 1mL of liquid out and add it to her food. If
-there's not 1mL left, just the rest of it is fine. If there's more than 1mL
-left, please repeat the next day.
-
 **NOTE:** Midnight is sometimes disgusting and may have barfed somewhere
 (including on the bed) or gotten poop stuck to her and scooted it across
 something to get it off (including on the bed). If this happens and you're
