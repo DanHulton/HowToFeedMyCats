@@ -14,28 +14,6 @@ kibble is. Midnight's kibble is immediately next to her dish.
 The medications are on the counter, immediately to the right of the fridge, with
 the unopened cans of wet cat food.
 
-## Rory
-
-Rory is a complete pig, and lives to consume food. Unless he's not and hasn't
-eaten much at all. Either is fine, he'll eat enough eventually to make the vet
-say "Oh, he's a little overweight, should work on getting that down a bit!" Just
-fill his food bowls, located at the far end of the apartment at the base of the
-windows, in between Deena's desk and the couch. He'll deplete them at his own
-pace.
-
-His water dishes are located next to the main bathroom. Rory is a disgusting
-drinker, and uses his filthy, filthy paw to drink, which means his water bowls
-will be gross when you get there. Please empty and rinse his bowls before
-refilling.
-
-There is more than one of each bowl, so please fill all, especially if you are
-going to be absent for a few days.
-
-Rory gets a quarter of the large can of wet food per day (once in the morning,
-once in the evening). He may not eat any of this food. That is normal. Use any
-of the small plates in the upper cupboard to the right of the stove for this wet
-food.
-
 ## Midnight
 
 Midnight fights with Rory (or Rory fights with Midnight, we don't know which)
@@ -43,14 +21,8 @@ and thus is kept separate from him in the main bedroom. Please take care when
 entering the bedroom that she does not escape, nor Rory enter, lest **A Fight**
 ensue.
 
-She may not be visible when you enter, as she can be skittish. Or she may be
-desperate for affection. Who can know in advance? She is a cat, and her whims
-are subject to no human scrutiny.
-
-Her food bowls are across the room, in front of the window. They will likely
-still be mostly full when you arrive, but if you feel like attempting to gain
-her (incredibly fickle) affection, you can add more food to the bowl and then
-supplicate before her.
+Her food bowls are across the room, in front of the window. She also grazes, so
+feel free to fill them up if they look empty.
 
 Her water bowls should be visible on entering the room, directly in front of the
 door. They should be emptied in the bathroom sink and refilled.
@@ -71,11 +43,11 @@ She also gets some Gabapentin to calm her down. Give this bottle a solid shake
 to mix it up, then use one of the syringes to draw out .5mL of liquid and add it
 to her food.
 
-<img src="https://github.com/DanHulton/HowToFeedMyCats/raw/master/images/lax.jpg" width="300" />
+<img src="https://github.com/DanHulton/HowToFeedMyCats/raw/master/images/lax.jpg" width="400" />
 
 She also gets some laxative to keep her regular and keep her from being brought
-to the vet to fix that particular problem. Scoop out about three-quarters of the
-tiny scoop and pop it in there.
+to the vet to fix that particular problem. Scoop out about half of the tiny
+scoop and pop it in there.
 
 **NOTE:** Midnight is sometimes disgusting and may have barfed somewhere
 (including on the bed) or gotten poop stuck to her and scooted it across
@@ -83,6 +55,26 @@ something to get it off (including on the bed). If this happens and you're
 uncomfortable dealing with it, just... Just let me know, and I'll clean it up
 when I get back. In the meantime, she made her bed (literally and figuratively)
 and can lay in it (literally and figuratively).
+
+## Rory
+
+Rory's food bowls are located at the far end of the apartment at the base of the
+windows, in between Deena's desk and the couch. If they look empty, fill 'em up,
+he'll deplete them at his own pace.
+
+His water dishes are located next to the main bathroom. Rory is a disgusting
+drinker, and uses his filthy, filthy paw to drink, which means his water bowls
+will be gross when you get there. Please empty and rinse his bowls before
+refilling.
+
+There is more than one of each bowl, so please fill all, especially if you are
+going to be absent for a few days.
+
+Rory gets a quarter of the large can of wet food per day (once in the morning,
+once in the evening). He may not eat any of this food. That is normal. Use any
+of the small plates in the upper cupboard to the right of the stove for this wet
+food. Rory also gets a half of the tiny scoop added to his wet food, but no
+other medications.
 
 ## The plants
 
